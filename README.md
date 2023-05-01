@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **waleedsohail32@gmail.com**
 
-- 📄 Know about my experiences [https://app.enhancv.com/share/7de17c75/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic](https://app.enhancv.com/share/7de17c75/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
+- 📄 Know about my experiences [https://flowcv.com/resume/j4rsj6p3ta](https://flowcv.com/resume/j4rsj6p3ta)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
